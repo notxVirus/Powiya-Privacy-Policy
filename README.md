@@ -1,1 +1,0 @@
-# Powiya-Privacy-Policy
